@@ -15,7 +15,6 @@
 
 - 📫 How to reach me **priyam.pr1208@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1NIU3M-WuJC6urbacdm-AgkbztwGKuv7X/view?usp=drive_link](https://drive.google.com/file/d/1NIU3M-WuJC6urbacdm-AgkbztwGKuv7X/view?usp=drive_link)
 
 ### Blogs posts
 <!-- BLOG-POST-LIST:START -->
